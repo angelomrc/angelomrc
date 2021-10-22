@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @angelomrc
 - 👀 I’m interested in learn new things
-- 📫 How to reach me : angelo.luis.marcelino@hotmail.com
+- 📫 How to reach me : angelo.luis.marcelino@hotmail.com ig: @aaaaa.ang
+
 
 <!---
 angelomrc/angelomrc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
