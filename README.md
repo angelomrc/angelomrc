@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @angelo.mrcc
 - 👀 I’m interested in learn new things
-- 📫 How to reach me : angelo.luis.marcelino@hotmail.com ig: @aaaaa.ang
+- 📫 How to reach me : angelo.luis.marcelino@hotmail.com
 
 
 <!---
